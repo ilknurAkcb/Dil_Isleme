@@ -1,0 +1,1 @@
+Dil işleme vize ödevi
