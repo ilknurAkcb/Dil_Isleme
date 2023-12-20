@@ -1,1 +1,1 @@
-Dil işleme vize ödevi
+Doğal dil işleme dersi vize ödevi
